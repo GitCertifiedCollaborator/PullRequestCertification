@@ -1,2 +1,2 @@
-Joshua Edward McLaughlin Cox
-John Van Lowe
+1. Joshua Edward McLaughlin Cox
+1. John Van Lowe
